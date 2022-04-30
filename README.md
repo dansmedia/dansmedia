@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dansmedia
+- 👀 I’m interested in sains and technology
+- 🌱 I’m currently learning Ilmu and education especially informatics
+- 💞️ I’m looking to collaborate on perfection to get Allah SWT's blessing
+- 📫 How to reach me, visit my website: https://www.dansmedia.eu.org
