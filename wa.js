@@ -13,7 +13,7 @@
     Terima kasih sudah menggunakan karya saya. :)
 
     Salam,
-    KangRian.NET
+    DansMedia.eu.org
 
     Terakhir Diperbarui : 9/5/2021 @ 21:29
 
